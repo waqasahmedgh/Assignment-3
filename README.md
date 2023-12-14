@@ -1,1 +1,1 @@
-Assigmnent 3 of week 6
+Assignent-3 of week 6
